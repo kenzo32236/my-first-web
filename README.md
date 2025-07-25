@@ -1,1 +1,1 @@
-please don't judge, i this is my first web
+please don't judge, this is my first web
